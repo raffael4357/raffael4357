@@ -1,1 +1,1 @@
-Just an idiot, who can code a little.
+Just an idiot who can code a little.
